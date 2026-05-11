@@ -2,11 +2,20 @@
 Repository of Alias Nick-HeroID = Entity.Codname-IFPG_440422115.Repo.Owner(HuMint). Open/Close Spiritual-Room Incorporation FIFO Files.
 
 
+--- --- --- --- --- --- --- 
+
+
 10/05/2026 - Open(https://www.youtube.com/watch?v=mbQtuRPGwkM);
 
 10/05/2026 - Closed(+- 17:00hr);
 
 
+--- --- --- --- --- --- --- 
+
+
 11/05/2026 - Open(06:25 - Fumo Arapiraca);
 
 11/05/2026 - In(09:54 - https://www.youtube.com/watch?v=QUvVdTlA23w);
+
+
+--- --- --- --- --- --- --- 
